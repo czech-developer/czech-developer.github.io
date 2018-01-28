@@ -1,1 +1,0 @@
-# czech-developer.github.io
